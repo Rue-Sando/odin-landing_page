@@ -1,1 +1,1 @@
-placeholder text until I have something to say here
+20250620 - first draft submitted
